@@ -1,5 +1,6 @@
 ### Minecraft 1.21.44 APK Mediafire Baixar Grátis Para Android 2024
 Minecraft 1.21.44 APK traz uma série de atualizações e melhorias que prometem enriquecer a experiência de jogo para usuários do Android. Esta versão da edição Bedrock inclui novos recursos de jogabilidade, correções de bugs, e ajustes para tornar o jogo mais dinâmico e estável.
+![minecraft-1-21-44-apk-download](https://github.com/user-attachments/assets/9ea96c67-be61-4600-b2c3-2cc6ac54d74f)
 
 **🌈🙋‍♀️ Baixar: [Minecraft 1.21.44 APK](https://modilimitado.io/pt/minecraft-apk)**
 
